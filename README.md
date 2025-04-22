@@ -4,4 +4,4 @@ You can contact me via:-
 (ii)Phone Number:- 7043088654
 (iii)Linkedln ID:- www.linkedin.com/in/pushpendra-singh-69a768333
 
-I am an enthusiast in the feild of Artificial Intelligence and Machine Learning and currently upgrading myself in this feild and constantly learning new techniques and building projects to enhance my knowledge in this domain
+I am an enthusiast in the field of Artificial Intelligence and Machine Learning and currently upgrading myself in this feild and constantly learning new techniques and building projects to enhance my knowledge in this domain
