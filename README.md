@@ -1,6 +1,6 @@
 This is my first github repository and it's author is Pushpendra Singh
 You can contact me via:-
-(i)email-id:pushpendra.2719051624@std.ggsipu.ac.in
+(i)email-id:pushpendra7699999@gmail.com
 (ii)Phone Number:- 7043088654
 (iii)Linkedln ID:- www.linkedin.com/in/pushpendra-singh-69a768333
 
